@@ -28,3 +28,6 @@ Zulfkhar's Opinion:
 * This looks very interesting and thought-provoking article, well done 🚀
 
 Name: Zulfkhar Maukey
+-----------
+
+Thank you, Zulfkhar!
