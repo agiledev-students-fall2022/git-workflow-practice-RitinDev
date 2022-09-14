@@ -21,3 +21,10 @@ One particular idea mentioned in the article that stands out to me is that the a
 > So you’d be better off ignoring what I’m saying here and instead building some kind of [online software thing](http://www.thefacebook.com/) that lets other students find people to go out on dates with.
 
 Given the variety of points discussed in this article, I believe that it is a worthwhile read for any comptuer science student in college.
+
+Zulfkhar's Opinion:
+-----------
+
+* This looks very interesting and thought-provoking article, well done 🚀
+
+Name: Zulfkhar Maukey
